@@ -1,2 +1,2 @@
 # BerlineBeauvaisjp.github.io
-Cybersecurity Analyst Path
+Cybersecurity Specialist 
